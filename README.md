@@ -4,7 +4,7 @@ and action by difference as that day good or bad. It is just kidding.
 I am so nice in every day. And I am so sorry in advance if I tell that word in crazy. 
 because I have low skill in English but if you can speak in Thai. I can advise you in everying that I know 
 but there are the little so much. haha!!
-- 👀 I’m interested in DIY And Toolkits for productivity
+- 👀 I’m interested in DIY And Toolkit for productivity
 - 🌱 I’m currently learning in my self all functions and need professionals to test and told me in basic to deep actions me in details step by step
 - 💞️ I’m looking to collaborate on build world to cleanest and delete bad things. This is from my mind.
 - 📫 How to reach me you can DM to me or send me the email but not sure it's will to me or another because I feel someone in myself Block me the news . I think so. Or maybe something wrong in my life.
