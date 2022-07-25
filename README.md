@@ -1,7 +1,9 @@
 - 👋 Hi, I’m @BadCatTalala or you can call me 4 namees 
 , Bad Boy, Bod Girl, Good boy , Good Girl that is my face 
 and action by difference as that day good or bad. It is just kidding. 
-I am so nice in every day
+I am so nice in every day. And I am so sorry in advance if I tell that word in crazy. 
+because I have low skill in English but if you can speak in Thai. I can advise you in everying that I know 
+but there are the little so much. haha!!
 - 👀 I’m interested in DIY And Toolkits for productivity
 - 🌱 I’m currently learning in my self all functions and need professionals to test and told me in basic to deep actions me in details step by step
 - 💞️ I’m looking to collaborate on build world to cleanest and delete bad things. This is from my mind.
